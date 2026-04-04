@@ -37,7 +37,7 @@ Psalm 23:1
 "The Lord is my shepherd; I shall not want."
 
 **Reflection:**
-This verse reminds me that God is my provider and guide. Like a shepherd cares for every need of the sheep, God knows exactly what I need—even before I ask. It helps me let go of worry and trust that I am being led in the right direction, even when things feel uncertain.
+This verse reminds me that God is my provider and guide. Like a shepherd cares for every need of the sheep, God knows exactly what I need, even before I ask. It helps me let go of worry and trust that I am being led in the right direction, even when things feel uncertain.
 
 **Prayer:**
 Lord, thank You for guiding and providing for me each day. Help me to trust in Your plans and not be anxious about what I lack. Remind me that in You, I have everything I need. Amen.
