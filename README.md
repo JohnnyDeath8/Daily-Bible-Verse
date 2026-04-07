@@ -56,3 +56,18 @@ This verse reminds us that no matter the challenges we face today, our strength 
 
 **Prayer:**
 Lord, help me rely on Your strength today. Give me courage in challenges and faith that You are with me in all things. Amen.
+
+-------------------------------------------------------
+## April 5, 2026
+
+**Verse:**
+Psalm 23:1
+
+**Text:**
+“The Lord is my shepherd, I lack nothing.”
+
+**Reflection:**
+This verse reminds us that God provides for our needs and guides us through life. Even in uncertain moments, we can trust that we are not lacking anything essential when we rely on Him.
+
+**Prayer:**
+Lord, thank You for being my Shepherd. Help me trust in Your provision and guidance each day. Amen.
