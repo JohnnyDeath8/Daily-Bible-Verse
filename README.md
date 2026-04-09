@@ -71,3 +71,19 @@ This verse reminds us that God provides for our needs and guides us through life
 
 **Prayer:**
 Lord, thank You for being my Shepherd. Help me trust in Your provision and guidance each day. Amen.
+
+-------------------------------------------------------
+## April 6, 2026
+
+**Verse:**
+Isaiah 41:10
+
+**Text:**
+"So do not fear, for I am with you; do not be dismayed, for I am your God.
+I will strengthen you and help you; I will uphold you with my righteous right hand."
+
+**Reflection:**
+This verse speaks directly to moments of fear and uncertainty. It reassures us that we are never alone in our struggles. No matter how overwhelming things may feel, there is a promise of strength, help, and steady support.
+
+**Prayer:**
+Lord, when I feel afraid or discouraged, remind me that You are always with me. Strengthen my heart and help me trust in Your presence and guidance. Amen.
