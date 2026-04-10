@@ -87,3 +87,24 @@ This verse speaks directly to moments of fear and uncertainty. It reassures us t
 
 **Prayer:**
 Lord, when I feel afraid or discouraged, remind me that You are always with me. Strengthen my heart and help me trust in Your presence and guidance. Amen.
+
+-------------------------------------------------------
+## April 7, 2026
+
+**Verse:**
+Psalm 34:17–18
+
+**Text:**
+"The righteous cry out, and the Lord hears them;
+he delivers them from all their troubles.
+The Lord is close to the brokenhearted
+and saves those who are crushed in spirit."
+
+**Reflection:**
+This passage is a gentle reminder that God is attentive to our pain. In moments when we feel broken or overwhelmed, we are not ignored or forgotten. Instead, God draws near with compassion and rescue. Even in our lowest points, His presence is constant and deeply personal.
+
+**Prayer:**
+Lord, thank You for hearing me when I call out to You. Stay close to me in times of pain and lift me up when my spirit feels weak. Help me find comfort in Your presence and trust in Your saving grace. Amen.
+
+
+
