@@ -106,5 +106,21 @@ This passage is a gentle reminder that God is attentive to our pain. In moments 
 **Prayer:**
 Lord, thank You for hearing me when I call out to You. Stay close to me in times of pain and lift me up when my spirit feels weak. Help me find comfort in Your presence and trust in Your saving grace. Amen.
 
+-------------------------------------------------------
+## April 8, 2026
+
+**Verse:**
+Psalm 46:10
+
+**Text:**
+"Be still, and know that I am God."
+
+**Reflection:**
+In a world that constantly demands movement and noise, this verse is a reminder to pause. Stillness is not weakness—it’s where clarity and trust in God begin. When everything feels overwhelming, stepping back and being still allows space for peace and reassurance to enter.
+
+**Prayer:**
+Lord, help me to slow down and trust in You. In moments of chaos, teach me to be still and remember that You are in control. Amen.
+
+-------------------------------------------------------
 
 
