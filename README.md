@@ -122,5 +122,18 @@ In a world that constantly demands movement and noise, this verse is a reminder 
 Lord, help me to slow down and trust in You. In moments of chaos, teach me to be still and remember that You are in control. Amen.
 
 -------------------------------------------------------
+## April 9, 2026
 
+**Verse:**
+Psalm 23:1
 
+**Text:**
+“The Lord is my shepherd; I shall not want.”
+
+**Reflection:**
+This verse reminds me that God is my provider and guide. Even when I feel uncertain or lacking, I can trust that He knows what I need and will lead me in the right direction. It encourages me to let go of worry and rest in His care.
+
+**Prayer:**
+Lord, thank You for being my shepherd. Help me to trust Your guidance and find peace in Your provision each day. Amen.
+
+-------------------------------------------------------
