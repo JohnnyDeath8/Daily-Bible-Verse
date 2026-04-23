@@ -137,3 +137,17 @@ This verse reminds me that God is my provider and guide. Even when I feel uncert
 Lord, thank You for being my shepherd. Help me to trust Your guidance and find peace in Your provision each day. Amen.
 
 -------------------------------------------------------
+## April 10, 2026
+
+**Verse:**
+Philippians 4:6
+
+**Text:**
+"Do not be anxious about anything, but in every situation, by prayer and petition, with thanksgiving, present your requests to God."
+
+**Reflection:**
+Worry tends to take over when things feel uncertain or out of control. This verse is a reminder that instead of carrying everything alone, I can bring my concerns to God. It shifts my focus from stress to trust, and from fear to gratitude—even when nothing has changed yet.
+
+**Prayer:**
+Lord, help me to release my worries and trust You with what I cannot control. Teach me to come to You first in every situation, with a thankful heart.
+
