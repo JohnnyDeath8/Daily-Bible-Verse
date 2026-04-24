@@ -148,6 +148,18 @@ Philippians 4:6
 **Reflection:**
 Worry tends to take over when things feel uncertain or out of control. This verse is a reminder that instead of carrying everything alone, I can bring my concerns to God. It shifts my focus from stress to trust, and from fear to gratitude—even when nothing has changed yet.
 
+-------------------------------------------------------
+## April 25, 2026
+
+**Verse:**
+Psalm 46:1
+
+**Text:**
+"God is our refuge and strength, an ever-present help in trouble."
+
+**Reflection:**
+Life can feel overwhelming at times, but this verse reminds us that we are never alone in our struggles. There is constant support available, even in the hardest moments.
+
 **Prayer:**
 Lord, help me to release my worries and trust You with what I cannot control. Teach me to come to You first in every situation, with a thankful heart.
 
