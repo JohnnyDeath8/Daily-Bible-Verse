@@ -163,3 +163,17 @@ Life can feel overwhelming at times, but this verse reminds us that we are never
 **Prayer:**
 Lord, help me to release my worries and trust You with what I cannot control. Teach me to come to You first in every situation, with a thankful heart.
 
+-------------------------------------------------------
+**Verse:**
+Proverbs 3:5-6
+
+**Text:**
+"Trust in the Lord with all your heart and lean not on your own understanding; in all your ways submit to him, and he will make your paths straight."
+
+**Reflection:**
+Our natural instinct is to rely on what we can see and figure out. But this verse calls us to a different kind of trust—one that doesn't require all the answers. When we stop leaning on our limited understanding and start acknowledging God in every small choice, He promises to guide us clearly.
+
+**Prayer:**
+God, I want to trust You, but I keep trying to control the outcome. Forgive me for relying on my own wisdom. Today, I choose to submit every decision to You. Please clear the path ahead and help me follow where You lead.
+
+
